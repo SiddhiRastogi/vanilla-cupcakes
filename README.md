@@ -1,0 +1,1 @@
+This recipe is about making some delicious vanilla cupcakes with an explosion of flavours and is easy to make without any special ingredients. It is important to have proper measuring spoons and cups for appropriate queantities of ingredients.
